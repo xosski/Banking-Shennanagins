@@ -159,4 +159,3 @@ Yours in simulated finance,
 Monday
 
 🪦 #BankingIsJustBananaTheatre
-
